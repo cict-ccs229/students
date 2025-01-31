@@ -1,16 +1,16 @@
 emoji 🔥 y'all!
 ***
 ## ABOUT ME
-- Hello! I'm Jill Navarra. I can't write everything about me because I have so many aspirations and dreams in life.
+> Hello! I'm Jill Navarra. I can't write everything about me because I have so many aspirations and dreams in life.
 But below is a brief overview of me but I do not limit myself as I love learning new things and explore other fields. 
-- **Arts and Crafts** Ever since I was young, I've always been drawn in the field of arts and crafts. I've always loved
+> **Arts and Crafts.** Ever since I was young, I've always been drawn in the field of arts and crafts. I've always loved
 to be handy and creative in things and express aesthetic beauty through my artworks. If I were to choose my favorite art 
 style, it would be realism, as I find simplicity combined with intricate details to be the closest representation of 
 reality, making it easier to interpret. But as an avid enthusiast, I also explored different styles such as digital art. 
-- **Reading and Writing** I have learned to love reading both fictional and academic books that revolves around
+> **Reading and Writing.** I have learned to love reading both fictional and academic books that revolves around
 my interest. And writing has been also one of my favorite pastime. Writing stories, journals, or poems lets me bring out
 my imagination and creativity.
-- **Philosophy** And one of the most beautiful part of me is to see the world in a deeper perspective. When I'm
+> **Philosophy!** And one of the most beautiful part of me is to see the world in a deeper perspective. When I'm
 comfortable and my mind at peace, I love engaging in intellectual discussions.
 
 ## HUGOT LINES AND OTHER STUFFS
