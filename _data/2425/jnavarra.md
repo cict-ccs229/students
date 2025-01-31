@@ -23,11 +23,11 @@ below his own level." - Carl Jung
     resources to guide me and increase my learning. Even though I'm past being a beginner I still believe I have a lot
     more to learn and discover. I'm aiming for more improvement in my skill so that (not now but someday) I could be
     confident with my ability.
-1. Have you developed apps related to machine learning before?
+2. Have you developed apps related to machine learning before?
     > I have not yet but I hope with a given opportunity from this subject I could finally develop one.
-1. What are your expectations for this class.
+3. What are your expectations for this class.
    > My expectations would be focusing on the subject intended for this class, ensuring that my learnings could be 
    applied in real-life situations. I also hope for proper guidance from the teacher, to provide us with clear explanations, 
    support, and practice insights to enhance my learning experience.
-1. Any questions about the course?
+4. Any questions about the course?
    > There's none for now.
