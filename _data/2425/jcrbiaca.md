@@ -1,8 +1,6 @@
  
 # ABOUT JOVS
 
-
-
 > Hi there! I’m Joven Carl Rex P.  Biaca, but feel free to call me “Jovs” , it’s short and simple just like me. I'm someone who deeply values family and loved ones, they mean the world to me. During my free time, I enjoy immersing myself in the world of manhwas and unwinding by playing online games . It’s my way of relaxing and keeping things fun.
 
 
