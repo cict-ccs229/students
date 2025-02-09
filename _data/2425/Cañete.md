@@ -1,8 +1,8 @@
 # About Me 👋🏻
 
-> Hi, I’m Gem Win Cañete, but you can call me "Gwen." I have a love-hate relationship with creativity—it sucks the soul out of me (seriously), yet I always find myself chasing more inspiration. Whether it’s through listening to music, scribbling ideas on paper, reading scripts, daydreaming, traveling, or exploring every nook and cranny of creativity, I can’t seem to get enough.  
+> Hi, I’m Gem Win Cañete, but you can call me "Gwen." I have a love-hate relationship with creativity—it sucks the soul out of me (seriously), yet I always find myself chasing more inspiration. Whether it’s through listening to music, scribbling ideas on paper, reading scripts, daydreaming, traveling, or exploring every nook and cranny of creativity, I can’t seem to get enough.  But as much as I love being creative, I also thrive on logic. That’s why I’m here right now. It lets me flex different skill sets and stay fluid—well, mostly when it comes to scheduling! 🤪
 
-But as much as I love being creative, I also thrive on logic. That’s why I’m here right now. It lets me flex different skill sets and stay fluid—well, mostly when it comes to scheduling! 🤪
+
 
 Favorite Line (mom and daughter) 📜
 **LADY BIRD (O.S.)**  
