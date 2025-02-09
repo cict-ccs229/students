@@ -4,32 +4,15 @@
 
 # Favorite Movie Line📜
 
-**LADY BIRD (O.S.)**  
-Why can’t you say I look nice?  
-
-**MARION**  
-I thought you didn’t even care what I think.  
-
-**LADY BIRD (O.S.)**  
-I still want you to think I look good.  
-
-**MARION**  
-I’m sorry, I was telling you the truth. Do you want me to lie?  
-
-**LADY BIRD (O.S.)**  
-No, I just wish... I wish that you liked me.  
-
-**MARION**  
-Of course I love you.  
-
-**LADY BIRD**  
-But do you like me?  
-
-**MARION**  
-*(faltering)* ...I want you to be the very best version of yourself you can be.  
-
-**LADY BIRD**  
-What if this is the best version?  
+> <span style="color: #3498db;">Why can’t you say I look nice?</span>  
+> <span style="color: #e74c3c;">I thought you didn’t even care what I think.</span>  
+> <span style="color: #3498db;">I still want you to think I look good.</span>  
+> <span style="color: #e74c3c;">I’m sorry, I was telling you the truth. Do you want me to lie?</span>  
+> <span style="color: #3498db;">No, I just wish... I wish that you liked me.</span>  
+> <span style="color: #e74c3c;">Of course I love you.</span>  
+> <span style="color: #3498db;">But do you like me?</span>  
+> <span style="color: #e74c3c;"><i>(faltering)</i> ...I want you to be the very best version of yourself you can be.</span>  
+> <span style="color: #3498db;">What if this is the best version?</span>  
 
 
 # Q&A ❓
